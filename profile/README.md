@@ -1,4 +1,4 @@
-## MarSei 🍿🌈🧙
+## MarSei 🌈🧙
 
 Bare et privat lille hjørne.
 
